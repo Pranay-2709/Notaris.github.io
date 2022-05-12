@@ -1,2 +1,0 @@
-# Notaris.github.io
-Notaris
